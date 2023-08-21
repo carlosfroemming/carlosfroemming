@@ -17,7 +17,7 @@
 
 - 📫 Como falar comigo: **Email: carlos_f17@hotmail.com, Telefone: (55) 9 9699-8088**
 
-- ⚡ Fato engraçado **Eu adoro South Park**
+- ⚡ Fato engraçado **Eu adoro a série The Office**
 
 <h3 align="left">Se conecte comigo:</h3>
 <p align="left">
